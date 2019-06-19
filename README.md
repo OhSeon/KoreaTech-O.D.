@@ -1,1 +1,0 @@
-# KoreaTech-O.D.
